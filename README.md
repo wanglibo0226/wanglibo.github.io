@@ -1,3 +1,3 @@
-# wanglibo0226.github.io
+# wanglibo0226
 个人博客
 11111
